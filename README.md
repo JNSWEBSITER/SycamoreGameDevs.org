@@ -1,1 +1,0 @@
-# SycamoreGameDevs.org
